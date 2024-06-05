@@ -8,7 +8,7 @@ Saat ini saya sedang belajar mengenai GitHub melalui [Dicoding](https://www.dico
 
 Saya juga sedang mengikuti Bangkit Academy 2024 pada *learning path* Machine Learning. <br>
 
-Jika kamu tertarik untuk berkenalan denganku, silakan ikuti akun [Linkedin](www.linkedin.com/in/khalidaaurora) ku ya 😄. 
+Jika Anda tertarik untuk berkenalan dengan saya, silakan ikuti akun [Linkedin](www.linkedin.com/in/khalidaaurora) saya ya 😄. 
 
 <p align="left">
 <a href="https://github.com/khalidaaurora">
